@@ -1,6 +1,6 @@
 # Introduction
 
-(Contintued)
+(Continued)
 
 Being with poetry this term has been transformative, in part because I don’t feel as intimidated by reading poetry (some poetry anyway) than I did in January. But also because I find myself enjoying the feeling of marvelling that I can have when I’m reading (or seeing) something in a profound way because of a poetic image. I think I now can give myself over to American poet and scholar John Ciardi’s (date) advice regarding our relationships with poetry:
 
@@ -12,7 +12,7 @@ And this happens to me all the time as a researcher. At first, I can only stare 
 
 For example, why is it important to look for new types of sources as an historian as Natalie Zemon Davis has done with historical French legal documents? In my case, why, are oral histories “new” or “different” forms of evidence and storytelling that allow for or prompt new interpretations? What would what would my history of unions at Carleton been like without these “lines”? Or conversely, in my analysis, what meaning could I see in a transcript where a line is literally missing or a word misspelt? How would that reshape my interpretation?
 
-One aspect of our shared practice of reading,doing, and reflection, that has been like a “line out” has been to write without a set of weekly or at least “throughout the term” deadlines. Initially, when I realized that we would have lots of writing to do but were not required to “hand in homework” every week, I almost panicked. First, I was worried about having too much to do at the end of the term. But then, I pondered how much I would learn week to week if I didn’t have to produce something on time and receive a grade. How much could I or would I learn?
+One aspect of our shared practice of reading, doing, and reflection, that has been like a “line out” has been to write without a set of weekly or at least “throughout the term” deadlines. Initially, when I realized that we would have lots of writing to do but were not required to “hand in homework” every week, I almost panicked. First, I was worried about having too much to do at the end of the term. But then, I pondered how much I would learn week to week if I didn’t have to produce something on time and receive a grade. How much could I or would I learn?
 
 A void.
 
