@@ -1,5 +1,7 @@
 # Introduction
 
+(Contintued)
+
 Being with poetry this term has been transformative, in part because I don’t feel as intimidated by reading poetry (some poetry anyway) than I did in January. But also because I find myself enjoying the feeling of marvelling that I can have when I’m reading (or seeing) something in a profound way because of a poetic image. I think I now can give myself over to American poet and scholar John Ciardi’s (date) advice regarding our relationships with poetry:
 
 “... the language of experience is not the language of classification … so for poetry. The concern is not to arrive at a definition and to close the book, but to arrive at an experience” (p. 666).
