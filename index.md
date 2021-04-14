@@ -20,6 +20,6 @@ But obligations were there, not the least of which, was to write a poem and shar
 So, I may not be handing in assignments on a regular basis but I am constantly linking ideas to my daily life and this all of the work that’s been done this term is “writ large” in this portfolio, a form which I find liberating because it encourages me to “mean” each aspect of my work in ways that are (at least slightly) more creative and liberating then such writing endless streams in a Google doc. I think I am “possibilitizing” my ideas in a form that makes for more interesting sharing.
 
 Reference list
-Ciardi, J. (1959). *What does a poem mean?* Houghton Mifflin.
 
+Ciardi, J. (1959). *What does a poem mean?* Houghton Mifflin.
 Barone, T., & Eisner, E. (2012). *Arts based research*. SAGE.
